@@ -1,1 +1,1 @@
-# -letim-sistemleri-Seazer-
+# -işletim-sistemleri-Seazer-
